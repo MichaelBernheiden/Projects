@@ -1,1 +1,1 @@
-Irgend ein Zeug. Noch'n bischen Schrott dazu. Und noch mehr Schrott.
+Irgend ein Zeug. Noch'n bischen Schrott dazu. Und noch mehr Schrott. Und der Schrott hat Inflation.
